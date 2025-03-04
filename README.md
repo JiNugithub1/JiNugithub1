@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/589957c0-1d57-47c8-b2fd-0bcd405fa233)
+![Image](https://github.com/user-attachments/assets/c347316c-2dda-4481-966a-1d2a402b2b04)
 
 <!--
 **JiNugithub1/JiNugithub1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
